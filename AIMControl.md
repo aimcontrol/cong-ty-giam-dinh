@@ -1,5 +1,5 @@
 GIÁM ĐỊNH/KIỂM ĐỊNH/THẨM ĐỊNH & CHỨNG NHẬN
-Công ty giám định Việt- Nhân (AIM Control) có những kỹ sư chuyên ngành phục vụ dịch vụ Giám định, giam dinh, chứng nhận, chứng nhận giám định, kiểm định, chứng nhận kiểm định, thẩm định, chứng nhận thẩm định, giám định chất lượng, giám định xuất khẩu, giám định nhập khẩu, giám định mua bán.
+Công ty giám định AIM Group (AIM Control) có những kỹ sư chuyên ngành phục vụ dịch vụ Giám định, giam dinh, chứng nhận, chứng nhận giám định, kiểm định, chứng nhận kiểm định, thẩm định, chứng nhận thẩm định, giám định chất lượng, giám định xuất khẩu, giám định nhập khẩu, giám định mua bán.
 
 Dịch vụ Giám định / Kiểm định/ / Thẩm định  và Cấp Giấy Chứng Nhận Giám Định của Công ty giám định Việt- Nhân (AIM Control) tại hầu hết các quốc gia vì chúng tôi có trụ sỡ tại Việt nam và các quốc gia trên thế giới.
 Để hiểu rõ những loại Dịch vụ giám định, kiểm định, thẩm định và cấp chứng nhận của chúng tôi cung cấp xin vui lòng liên hệ: Email: aimcontrol@hotmail.com, cell: +84903615612, www.aimcontrolgroup.com và xem chi tiết sau:
@@ -179,13 +179,13 @@ Best regards,
 Dr Capt Nguyen Te Nhan / G.D
 Agriculture - Industry - Marine Control Inspection Group
 -------------------------------------------------------
-Tel   : +84-8-3832-7204
-Fax  : +84-8-3832-8393
+Tel   : +842-8-3832-7204
+Fax  : +842-8-3832-8393
 Cell  : +84903615612 
 E-mail: aimcontrol@aimcontrolgroup.com; inspection@aimcontrolgroup.com
 MSN : aimcontrol@hotmail.com
 Skype: aimcontrol
-http://www.aimcontrolgroup.com
+https://www.aimcontrolgroup.com
 http://www.kiemdinh.org
 http://www.giamdinh.org 
 http://www.inspectionvietnam.com 
@@ -496,15 +496,15 @@ Dr Capt Nguyen Te Nhan / G.D
 
 Agriculture - Industry - Marine Control Survey Inspection Group
 -------------------------------------------------------
-Tel   : +84-8-3832-7204
-Fax  : +84-8-3832-8393
+Tel   : +84-28-3832-7204
+Fax  : +84-28-3832-8393
 Cell  : +84903615612 
 E-mail: ceo@aimcontrolgroup.com; aimcontrol@aimcontrolgroup.com; 
 qualitycontrol@aimcontrolgroup.com, inspection@aimcontrolgroup.com,
 survey@aimcontrolgroup.com
 MSN: aimcontrol@hotmail.com
 Skype: aimcontrol
-http://www.aimcontrolgroup.com
+https://www.aimcontrolgroup.com
 http://www.inspection.vn
 http://www.kiemdinh.org
 http://www.giamdinh.org 
@@ -669,7 +669,7 @@ Other Global Countries
 
 Contacted us when you orders us!
 
-Kind regards,
+[Kind regards,
 
 Dr Capt. Nguyen Te Nhan / G.D
 
@@ -684,3 +684,68 @@ MSN  :  aimcontrol@hotmail.com
 Skype:  aimcontrol
 http://www.aimcontrolgroup.com
 ------------------------------------------------------
+](https://www.aimcontrolgroup.com/en/cargo-inspection-/-cargo-survey.html
+
+https://aimcontrolgroup.com/en/survey-inspection-services.html
+
+https://aimcontrolgroup.com/en/damage-survey-services.html
+
+https://aimcontrolgroup.com/en/damaged-marine-cargo-survey.html
+
+https://aimcontrolgroup.com/en/insurance-survey-services-for-insurance-companies.html
+
+https://aimcontrolgroup.com/en/heavy-lift-project-cargo-loading-unloading-supervision-inspection.html
+
+https://aimcontrolgroup.com/en/inspection-service.html
+
+https://aimcontrolgroup.com/en/marine-survey.html
+
+https://aimcontrolgroup.com/en/marine-cargo-survey-and-consultancy.html
+
+https://aimcontrolgroup.com/en/marine-survey-/-offshore-inspection-services.html
+
+https://aimcontrolgroup.com/en/agriculture-goods-control-/-commodities-inspection-services.html
+
+https://aimcontrolgroup.com/en/industry-inspection-services.html
+
+https://aimcontrolgroup.com/en/others.html
+
+https://aimcontrolgroup.com/en/survey-inspection-services.html
+
+https://aimcontrolgroup.com/en/the-inspection-company.html
+
+https://aimcontrolgroup.com/en/uwhc-and-diving-inspection.html
+
+https://aimcontrolgroup.com/en/claim-investigation.html
+
+https://aimcontrolgroup.com/en/charterer-survey.html
+
+https://aimcontrolgroup.com/en/quality-assurance-and-quality-control-inspection-services.html
+
+https://aimcontrolgroup.com/en/tallying-and-surveying-services.html
+
+https://aimcontrolgroup.com/en/commodity-inspection.html
+
+https://aimcontrolgroup.com/en/marine-warranty-survey-surveyor.html
+
+https://aimcontrolgroup.com/en/vendor-inspection.html
+Best Regards
+Dr Capt. Nguyen Te Nhan / G.D 
+Agriculture Industry Marine Control Inspection Group of Companies®
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+E-mail:   CEO@aimcontrolgroup.com
+              survey@aimcontrolgroup.com
+              inspection@aimcontrolgroup.com
+              diving@aimcontrolgroup.com
+              qualitycontrol@aimcontrolgroup.com
+              tallying@aimcontrolgroup.com
+ 
+MSN   :  aimcontrol@hotmail.com 
+
+http://www.inspectioncertificate.org
+https://www.aimcontrolgroup.com 
+
+Tally Survey Inspection Certification Investigation Expertise Witness 
+Diving Underwater Clean Warranty & Approval Asia, Global. 
+Surveyors I Inspectors I Consultant I Tally-men I Divers I Experts
+)
